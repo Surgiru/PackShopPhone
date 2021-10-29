@@ -10,7 +10,7 @@
 
 **[EN]**
 
-***Voici mon Pack Vendeur Téléphone (PackShopPhone) : (Ime prout offe myselfe)***
+***Here my Pack Vendeur Téléphone (PackShopPhone) : (Ime prout offe myselfe)***
 
 ```-Map + Script```
 
@@ -26,3 +26,54 @@
 
 
 **#############################################################################**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+uwu
